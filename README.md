@@ -12,3 +12,5 @@ An actual dark mode for discord.
 - [Support Server](https://discord.gg/pCc7q4Z)
 - hellbound#9999
 
+hellbound if you're reading this and want me to take this down dm me on discord tag is telepracity#1000
+
